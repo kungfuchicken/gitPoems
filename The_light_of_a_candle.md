@@ -1,5 +1,7 @@
-The light of a candle 
+# The light of a candle
 
-Is transferred to another candle —
+*By Daniel Shown*
 
-spring twilight.
+The light of a laser
+Is transferred to another laser
+space twilight.
